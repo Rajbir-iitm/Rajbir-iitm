@@ -15,34 +15,28 @@
 
 **Doubt-Solving Educator** | Mar 2024 – Jul 2024
 
-* Ran 1–2 hr live sessions bending chemistry doubts to my will.
 
 ### 📝 Chegg *(Remote)*
 
 **Subject Matter Expert & Educator** | Mar 2024 – Present
 
-* US-student chemistry coach, designer of mocks & assignments that make JEE tremble.
 
 ### 🎥 Unacademy *(Remote)*
 
-**Plus Educator & Content Lead** | Feb 2025 – Apr 2025
-
-* Mastermind behind *Invisible Mechanics* & *JEE NEXUS* YouTube flows.
-* Architect of pan-India test series, DPPs & video slide decks.
 
 ---
 
 ## 🎓 Brain Factory
 
 **IIT Madras**
-*B.Tech in Data Analytics & AI* | 2023 – Present fileciteturn2file0
+*B.Tech in Data Analytics & AI* | 2023 – Present 
 
 ---
 
 ## 🏆 Legendary Feats
 
 * **AIR 336** out of 1.2 million JEE aspirants → IIT Madras admission (NIRF #1).
-* **CGPA 8.56** & climbing—disrupting analytics one decimal at a time. fileciteturn2file0
+* **CGPA 8.56** & climbing—disrupting analytics one decimal at a time.
 
 ---
 
