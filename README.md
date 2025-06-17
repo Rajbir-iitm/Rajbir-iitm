@@ -22,7 +22,10 @@
 
 
 ### 🎥 Unacademy *(Remote)*
+**Subject Matter Expert** | Feb 2025 – April 2025
 
+### 🎥 Invisible Mechanics *(Remote)*
+**Intern** | July 2025 – Present
 
 ---
 
