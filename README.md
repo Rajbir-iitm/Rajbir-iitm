@@ -5,7 +5,7 @@
 ## 🤖 About Me
 
 > **Dynamic teacher** with **2+ year** of experience in teaching Chemistry & Physics, sculpting minds with bespoke educational sorcery!
-> Content-creation ninja, data-analysis wizard, competitor-research detective—always innovating in Ed-Tech.  fileciteturn2file0
+> Content-creation ninja, data-analysis wizard, competitor-research detective—always innovating in Ed-Tech.  
 
 ---
 
