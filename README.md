@@ -13,16 +13,16 @@
 
 ### 🧪 Vedantu *(Remote)*
 
-**Doubt-Solving Educator** | Mar 2024 – Jul 2024
+**Intern** | Mar 2024 – Jul 2024
 
 
 ### 📝 Chegg *(Remote)*
 
-**Subject Matter Expert & Educator** | Mar 2024 – Present
+**Intern** | Mar 2024 – Present
 
 
 ### 🎥 Unacademy *(Remote)*
-**Subject Matter Expert** | Feb 2025 – April 2025
+**Intern** | Feb 2025 – April 2025
 
 ### 🎥 Invisible Mechanics *(Remote)*
 **Intern** | July 2025 – Present
